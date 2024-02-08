@@ -1,16 +1,19 @@
-### Hi there 👋
+吃瓜天堂最新地址
 
-<!--
-**Chiguatt666/Chiguatt666** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+免翻墙入口：https://www.cgtt05.me
 
-Here are some ideas to get you started:
+永久入口需翻墙：https://cgtt.me
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+官方免费Q群:http://url45.co/1188
+
+官方推特：https://twitter.com/tiantangcg321
+
+官方电报（telegram）群：https://t.me/chiguatt_com
+
+发任意致邮箱会自动回复获取最新地址
+
+chiguatiantang@gmail.com
+
+我们有偿收稿
+
+tg投稿：https://t.me/chiguatt_adm
